@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shreenavkhandelwalsk200@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1hluyxIKCP0Id_AH5IrUbueUje-NPuRgv/view](https://drive.google.com/file/d/1hluyxIKCP0Id_AH5IrUbueUje-NPuRgv/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hluyxIKCP0Id_AH5IrUbueUje-NPuRgv/view](https://drive.google.com/file/d/1q4ZpBun0feNAKe6w2WbyXL2vJ0iIrV-a/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
