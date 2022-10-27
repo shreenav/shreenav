@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/shreenav](https://github.com/shreenav)
 
-- 💬 Ask me about **Node.js, DBMS, Backend Development**
+- 💬 Ask me about **Node.js, DBMS, Backend Development, DSA**
 
 - 📫 How to reach me **shreenavkhandelwalsk200@gmail.com**
 
